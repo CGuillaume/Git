@@ -35,4 +35,4 @@ Clic droit dans le dossier / Ouvrir Git bash here ou :
     git pull origin master
 
 #### Lien pour la mise en page des fichier README
->http://blog.wax-o.com/2014/04/tutoriel-un-guide-pour-bien-commencer-avec-markdown/>
+<http://blog.wax-o.com/2014/04/tutoriel-un-guide-pour-bien-commencer-avec-markdown/>
