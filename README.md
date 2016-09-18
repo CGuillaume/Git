@@ -14,10 +14,6 @@ Clic droit dans le dossier / Ouvrir Git bash here ou :
 
     git status
 
-#### Visualiser les différents commit
-
-    git log
-
 #### Effectuer un commit du répertoire (Bien se placer dans le répertoire avant)
 -a pour ne pas avoir à ajouter les fichiers un par un avec :
 
@@ -25,6 +21,10 @@ Clic droit dans le dossier / Ouvrir Git bash here ou :
 -m pour ajouter les informations sur le commit directement
 
     git commit -a -m "Ajout des commandes"
+
+#### Visualiser les différents commit
+
+    git log
 
 #### Effectuer un push des données pour les envoyer sur Github par exemple
 
@@ -34,3 +34,5 @@ Clic droit dans le dossier / Ouvrir Git bash here ou :
 
     git pull origin master
 
+#### Lien pour la mise en page des fichier README
+>http://blog.wax-o.com/2014/04/tutoriel-un-guide-pour-bien-commencer-avec-markdown/>
