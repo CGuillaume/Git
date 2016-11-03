@@ -9,6 +9,9 @@ https://www.leboncoin.fr/locations/965656374.htm?ca=22_s **a contacter le + de g
 
 Si ce n'est pas une erreur entre 1 et 2 pièces est bien car il y a le chauffage compris. Mais j'ai peu que ce ne soit qu'un petit T1 avec petite mezzanine.
 
+https://www.leboncoin.fr/locations/1044080048.htm?ca=22_s
+bon sur le papier mais pas de photos, voir pour une visite **a contacter**
+
 #### Millery :
 https://www.leboncoin.fr/locations/1040138505.htm?ca=22_s
 
