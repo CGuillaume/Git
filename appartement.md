@@ -1,7 +1,6 @@
 # Recherche appartements
 
 #### Givors :
-https://www.leboncoin.fr/locations/1017034006.htm?ca=22_s  
 https://www.leboncoin.fr/locations/1042836016.htm?ca=22_s  
 https://www.leboncoin.fr/locations/965656374.htm?ca=22_s  
 https://www.leboncoin.fr/locations/1042783021.htm?ca=22_s  
@@ -36,3 +35,5 @@ https://www.leboncoin.fr/locations/offres/rhone_alpes/?th=1&location=Irigny%2069
 https://www.leboncoin.fr/locations/offres/rhone_alpes/?th=1&location=Vernaison%2069390%2CGrigny%2069520&parrot=0&mrs=150&mre=500
 
 https://www.leboncoin.fr/locations/offres/rhone_alpes/?th=1&location=Givors%2069700&parrot=0&mrs=150&mre=500
+
+http://www.seloger.com/list.htm?idtt=1&idtypebien=1&ci=690268&tri=initial&pxmax=500&LISTING-LISTpg=2
