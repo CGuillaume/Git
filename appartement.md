@@ -6,8 +6,7 @@ https://www.leboncoin.fr/locations/965656374.htm?ca=22_s **a contacter le + de g
 
 #### Brignais :
 <http://www.seloger.com/annonces/locations/appartement/brignais-69/centre-plaine-d-elite/114038003.htm?ci=690268&idtt=1&idtypebien=1&LISTING-LISTpg=2&pxmax=500&tri=initial>  Contacter le 03112016 par le site
-
-Si ce n'est pas une erreur entre 1 et 2 pièces est bien car il y a le chauffage compris. Mais j'ai peu que ce ne soit qu'un petit T1 avec petite mezzanine.
+--> C'est bien une erreur, il n'y a pas de chambre séparée, tel le 04112016.
 
 https://www.leboncoin.fr/locations/1044080048.htm?ca=22_s
 bon sur le papier mais pas de photos, voir pour une visite **a contacter**
