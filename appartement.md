@@ -48,4 +48,4 @@ https://www.leboncoin.fr/locations/offres/rhone_alpes/?th=1&location=Vernaison%2
 
 https://www.leboncoin.fr/locations/offres/rhone_alpes/?th=1&location=Givors%2069700&parrot=0&mrs=150&mre=500
 
-http://www.seloger.com/list.htm?idtt=1&idtypebien=1&ci=690268&tri=initial&pxmax=500&LISTING-LISTpg=2
+http://www.seloger.com/list.htm?pxmax=500&idtt=1&idtypebien=1&ci=690268&tri=d_dt_crea
