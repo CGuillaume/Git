@@ -21,11 +21,13 @@ https://www.leboncoin.fr/locations/1040138505.htm?ca=22_s
 Ils sont pas mal finalement les petits T2 de Grigny, c'est dans la résidence avec piscine on avait éliminé pq chauffage éléctrique, mais en comparaison des autres ils ne sont pas mal et il y en a plein donc je vais tenter d'allé en voir un.
 
 #### Irigny :
-<http://www.seloger.com/annonces/locations/appartement/irigny-69/yvours/113286847.htm?ci=690268&idtt=1&idtypebien=1&pxmax=500&tri=initial> contacter le 03112016 par le site
+<http://www.seloger.com/annonces/locations/appartement/irigny-69/yvours/113286847.htm?ci=690268&idtt=1&idtypebien=1&pxmax=500&tri=initial> contacter le 03112016 par le site - Loué
 
 #### St Genis Laval :
-<https://www.leboncoin.fr/locations/1033429858.htm?ca=22_s> Contact fait par mail le 03112016
+<https://www.leboncoin.fr/locations/1033429858.htm?ca=22_s> Contact fait par mail le 03112016 - Réponse le 04112016 - Chauffage électrique, dispo, André ROYET 0650459944 - Sans frais d'agence !
 https://www.leboncoin.fr/locations/1032720484.htm?ca=22_s
+
+https://www.leboncoin.fr/locations/1043832729.htm?ca=22_s RDC Avec Chauffage 470€ T2 dispo le 25 - Contact locataire pour visite Mlle Maio Sandra 0668211809
 
 #### Vourles :
 
