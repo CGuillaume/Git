@@ -29,7 +29,7 @@ https://www.leboncoin.fr/locations/1032720484.htm?ca=22_s
 https://www.leboncoin.fr/locations/1043832729.htm?ca=22_s RDC Avec Chauffage 470€ T2 dispo le 25 - Contact locataire pour visite Mlle Maio Sandra 0668211809
 
 #### Oullins
-https://www.leboncoin.fr/locations/1044410859.htm?ca=22_s  Chauffage compris 04 72 71 16 34
+https://www.leboncoin.fr/locations/1044410859.htm?ca=22_s  Chauffage compris 04 72 71 16 34 - Contact par lbc  le 05112016
 
 #### Vourles :
 
