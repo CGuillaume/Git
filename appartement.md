@@ -26,8 +26,8 @@ Ils sont pas mal finalement les petits T2 de Grigny, c'est dans la résidence av
 <https://www.leboncoin.fr/locations/1033429858.htm?ca=22_s> Contact fait par mail le 03112016 - Réponse le 04112016 - Chauffage électrique, dispo, André ROYET 0650459944 - Sans frais d'agence !
 https://www.leboncoin.fr/locations/1032720484.htm?ca=22_s
 
-https://www.leboncoin.fr/locations/1043832729.htm?ca=22_s RDC Avec Chauffage 470€ T2 dispo le 25 - Contact locataire pour visite Mlle Maio Sandra 0668211809 - Visite faite le 05112016, Bien chauffé un petit local en plus, appart viellot avec un petit séjour, chambre sans fenetre sur l'extérieur mais sur le séjour. Grande Cuisine en long. Petite fenetre dans sdb.
-![Plan]https://photos.google.com/u/1/photo/AF1QipNwza1mfk_T6kD_5wTGr4M8cG8SC9xgid4CvlcJ
+https://www.leboncoin.fr/locations/1043832729.htm?ca=22_s RDC Avec Chauffage 470€ T2 dispo le 25 - Contact locataire pour visite Mlle Maio Sandra 0668211809 - Visite faite le 05112016, Bien chauffé un petit local en plus, appart viellot avec un petit séjour, chambre sans fenetre sur l'extérieur mais sur le séjour. Grande Cuisine en long. Petite fenetre dans sdb.  
+![Plan](https://goo.gl/photos/r3gFb5LvYzJJhETw6)
 
 #### Oullins
 https://www.leboncoin.fr/locations/1044410859.htm?ca=22_s  Chauffage compris 04 72 71 16 34 - Contact par lbc  le 05112016
