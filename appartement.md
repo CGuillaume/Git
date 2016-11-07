@@ -4,8 +4,8 @@
 https://www.leboncoin.fr/locations/1042836016.htm?ca=22_s  
 https://www.leboncoin.fr/locations/965656374.htm?ca=22_s **a contacter le + de givors**
 
-https://www.leboncoin.fr/locations/995688069.htm?ca=22_s - Grand 500€ chez particulier
-https://www.leboncoin.fr/locations/1019022545.htm?ca=22_s
+https://www.leboncoin.fr/locations/995688069.htm?ca=22_s - Grand 500€ chez particulier - contact lbl le 07112016 n'arrive pas à l'avoir au tel
+https://www.leboncoin.fr/locations/1019022545.htm?ca=22_s - contact lbl le 07112016 n'arrive pas à l'avoir au tel
 
 #### Brignais :
 <http://www.seloger.com/annonces/locations/appartement/brignais-69/centre-plaine-d-elite/114038003.htm?ci=690268&idtt=1&idtypebien=1&LISTING-LISTpg=2&pxmax=500&tri=initial>  Contacter le 03112016 par le site
@@ -36,7 +36,6 @@ https://www.leboncoin.fr/locations/1043832729.htm?ca=22_s RDC Avec Chauffage 470
 https://www.leboncoin.fr/locations/1044410859.htm?ca=22_s  Chauffage compris 04 72 71 16 34 - Contact par lbc  le 05112016
 
 #### Vourles :
-http://www.seloger.com/annonces/locations/appartement/vourles-69/112262837.htm?ci=690268&idtt=1&idtypebien=1&pxmax=600&tri=d_dt_crea&bd=Detail_Nav  Meublé à appeler aprés 19h
 
 #### Mornant :
 http://www.seloger.com/annonces/locations/appartement/mornant-69/108245723.htm?ci=690268&idtt=1&idtypebien=1&LISTING-LISTpg=7&pxmax=500&tri=initial Pas cher si jamais.
