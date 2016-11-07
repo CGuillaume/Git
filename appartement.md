@@ -36,6 +36,7 @@ https://www.leboncoin.fr/locations/1043832729.htm?ca=22_s RDC Avec Chauffage 470
 https://www.leboncoin.fr/locations/1044410859.htm?ca=22_s  Chauffage compris 04 72 71 16 34 - Contact par lbc  le 05112016
 
 #### Vourles :
+http://www.seloger.com/annonces/locations/appartement/vourles-69/112262837.htm?ci=690268&idtt=1&idtypebien=1&pxmax=600&tri=d_dt_crea&bd=Detail_Nav  Meublé à appeler aprés 19h
 
 #### Mornant :
 http://www.seloger.com/annonces/locations/appartement/mornant-69/108245723.htm?ci=690268&idtt=1&idtypebien=1&LISTING-LISTpg=7&pxmax=500&tri=initial Pas cher si jamais.
