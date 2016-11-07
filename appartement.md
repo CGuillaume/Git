@@ -5,6 +5,7 @@ https://www.leboncoin.fr/locations/1042836016.htm?ca=22_s
 https://www.leboncoin.fr/locations/965656374.htm?ca=22_s **a contacter le + de givors**
 
 https://www.leboncoin.fr/locations/995688069.htm?ca=22_s - Grand 500€ chez particulier
+https://www.leboncoin.fr/locations/1019022545.htm?ca=22_s
 
 #### Brignais :
 <http://www.seloger.com/annonces/locations/appartement/brignais-69/centre-plaine-d-elite/114038003.htm?ci=690268&idtt=1&idtypebien=1&LISTING-LISTpg=2&pxmax=500&tri=initial>  Contacter le 03112016 par le site
