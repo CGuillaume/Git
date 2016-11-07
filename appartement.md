@@ -42,14 +42,14 @@ http://www.seloger.com/annonces/locations/appartement/mornant-69/108245723.htm?c
 
 ### Les liens avec les villes si tu veux, il n'y a plus qu'a cliquer !
 
-https://www.leboncoin.fr/locations/offres/rhone_alpes/?th=1&location=Saint-Genis-Laval%2069230%2CPierre-B%E9nite%2069310%2COullins%2069600&parrot=0&mrs=150&mre=500
+https://www.leboncoin.fr/locations/offres/rhone_alpes/?th=1&location=Saint-Genis-Laval%2069230%2CPierre-B%E9nite%2069310%2COullins%2069600&parrot=0&mrs=150&mre=600
 
-https://www.leboncoin.fr/locations/offres/rhone_alpes/?th=1&location=Vourles%2069390%2CBrignais%2069530&parrot=0&mrs=150&mre=500
+https://www.leboncoin.fr/locations/offres/rhone_alpes/?th=1&location=Vourles%2069390%2CBrignais%2069530&parrot=0&mrs=150&mre=600
 
-https://www.leboncoin.fr/locations/offres/rhone_alpes/?th=1&location=Irigny%2069540%2CCharly%2069390%2CMillery%2069390&parrot=0&mrs=150&mre=500
+https://www.leboncoin.fr/locations/offres/rhone_alpes/?th=1&location=Irigny%2069540%2CCharly%2069390%2CMillery%2069390&parrot=0&mrs=150&mre=600
 
-https://www.leboncoin.fr/locations/offres/rhone_alpes/?th=1&location=Vernaison%2069390%2CGrigny%2069520&parrot=0&mrs=150&mre=500
+https://www.leboncoin.fr/locations/offres/rhone_alpes/?th=1&location=Vernaison%2069390%2CGrigny%2069520&parrot=0&mrs=150&mre=600
 
-https://www.leboncoin.fr/locations/offres/rhone_alpes/?th=1&location=Givors%2069700&parrot=0&mrs=150&mre=500
+https://www.leboncoin.fr/locations/offres/rhone_alpes/?th=1&location=Givors%2069700&parrot=0&mrs=150&mre=600
 
-http://www.seloger.com/list.htm?pxmax=500&idtt=1&idtypebien=1&ci=690268&tri=d_dt_crea
+http://www.seloger.com/list.htm?pxmax=600&idtt=1&idtypebien=1&ci=690268&tri=d_dt_crea
