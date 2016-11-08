@@ -7,15 +7,11 @@ https://www.leboncoin.fr/locations/965656374.htm?ca=22_s **a contacter le + de g
 https://www.leboncoin.fr/locations/1019022545.htm?ca=22_s - contact lbl le 07112016 n'arrive pas à l'avoir au tel
 
 #### Brignais :
-https://www.leboncoin.fr/locations/1036105120.htm?ca=22_s a contacter le 08112016
 
 #### Millery :
-https://www.leboncoin.fr/locations/1040138505.htm?ca=22_s
 
 #### Grigny : 
 <https://www.leboncoin.fr/locations/1029572163.htm?ca=22_s>  
-**A appeler le 04112016**
-
 Ils sont pas mal finalement les petits T2 de Grigny, c'est dans la résidence avec piscine on avait éliminé pq chauffage éléctrique, mais en comparaison des autres ils ne sont pas mal et il y en a plein donc je vais tenter d'allé en voir un.
 
 #### Irigny :
@@ -27,20 +23,17 @@ https://www.leboncoin.fr/locations/1032720484.htm?ca=22_s
 https://www.leboncoin.fr/locations/1043832729.htm?ca=22_s RDC Avec Chauffage 470€ T2 dispo le 25 - Contact locataire pour visite Mlle Maio Sandra 0668211809 - Visite faite le 05112016, Bien chauffé un petit local en plus, appart viellot avec un petit séjour, chambre sans fenetre sur l'extérieur mais sur le séjour. Grande Cuisine en long. Petite fenetre dans sdb.  
 ![Plan](https://lh3.googleusercontent.com/2FNPxzaMcPcWxj-u8e4WyzQInXpRviV3Ykj4tQpeoEYh-TXeg9TzHd3e4ztq1u-0zdebEfwIh3IRR4OYGsXJWcyyqEMm-WZ6-fBsYahNICqVgRpTJonuJ6ND6jP7vEpvAqi-Kw-ZYeZTMsQofDZ_UFjImmzpLDR4moR2TQWHMCWqHFhP692EBQP6RDXsVxMzxsqOo96d6T7sO_mkVRStZAZiUVizPX4DnLsrij5wPIs0tSHLWd03qcMYhx9Hljue-Akm6uaW0EaMvLdy3GhOLof6pqg6vZN8IGDKE30bf5PPKv9y8cyWnP3MpLBlXOejRMOVH8cmmrOt6nLAnPKgJhgVG9rwnLEas0T0hSsWTuU3IW7fcZfWMem7PpTEwKlKH_0PN6-gxrXHTuKHE2EClrHl92YBQXTBElqD-wKqnuU8No9mQrJV2RkZtBzy-tP6WdedcA_O96aiCV2hubdrHQZj7XY1mamv2pDheiCgLlI71xK-446nYhogAivHN24JgmaG8R3rY9KqBTqGGYm9a3zQYLF3EQ1vycN2MrajSAYiheZz-FpDflqM5182MsHLUXNybsoUYWsjrAL6KKMSt_vJo9aa4EFXucNsceqT7eLUEfg6=w1227-h920-no)
 
-https://www.leboncoin.fr/locations/1033339004.htm?ca=22_s - Contact fait par lbc à appeler le 08112016  
-https://www.leboncoin.fr/vi/1033106088.htm?ca=22_s - Contact fait par lbc à appeler le 08112016  
-https://www.leboncoin.fr/locations/1025287883.htm?ca=22_s  - à appeler le 08112016  même agence que celui du dessus
+https://www.leboncoin.fr/locations/1033339004.htm?ca=22_s - Contact fait par lbc à appeler le 08112016 pas de rep au tel 
+https://www.leboncoin.fr/locations/1025287883.htm?ca=22_s  - Visite le 10112016 - 17h30 - 10 Impasse Marion
 
 #### Oullins
 https://www.leboncoin.fr/locations/1044410859.htm?ca=22_s  Chauffage compris 04 72 71 16 34 - Contact par lbc  le 05112016
-
 
 #### Pierre Bénite
 
 #### Vourles :
 
 #### Mornant :
-http://www.seloger.com/annonces/locations/appartement/mornant-69/108245723.htm?ci=690268&idtt=1&idtypebien=1&LISTING-LISTpg=7&pxmax=500&tri=initial Pas cher si jamais.
 
 ### Les liens avec les villes si tu veux, il n'y a plus qu'a cliquer !
 
