@@ -27,7 +27,7 @@ https://www.leboncoin.fr/locations/1033339004.htm?ca=22_s - Contact fait par lbc
 https://www.leboncoin.fr/locations/1025287883.htm?ca=22_s  - Visite le 10112016 - 17h30 - 10 Impasse Marion
 
 #### Oullins
-https://www.leboncoin.fr/locations/1044410859.htm?ca=22_s  Chauffage compris 04 72 71 16 34 - Contact par lbc  le 05112016 - ne rep pas au tel
+https://www.leboncoin.fr/locations/1044410859.htm?ca=22_s  Chauffage compris 04 72 71 16 34 - Contact par lbc  le 05112016 - visite 
 
 #### Pierre Bénite
 
