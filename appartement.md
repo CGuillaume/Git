@@ -36,7 +36,6 @@ https://www.leboncoin.fr/locations/1044410859.htm?ca=22_s  Chauffage compris 04 
 
 
 #### Pierre Bénite
-https://www.leboncoin.fr/vi/1043883177.htm?ca=22_s - Très Très Bien Chauffage compris garage 550€ - contacter sur lbc à appeler impérativement le 08112016
 
 #### Vourles :
 
