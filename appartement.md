@@ -1,10 +1,10 @@
 # Recherche appartements
 
 #### Givors :
-https://www.leboncoin.fr/locations/1042836016.htm?ca=22_s  
-https://www.leboncoin.fr/locations/965656374.htm?ca=22_s **a contacter le + de givors**
+https://www.leboncoin.fr/locations/1042836016.htm?ca=22_s - Visite le 09112016 à 12h30
+https://www.leboncoin.fr/locations/965656374.htm?ca=22_s contacter par tel ne repond pas - mail sur lbc le 08112016
 
-https://www.leboncoin.fr/locations/1019022545.htm?ca=22_s - contact lbl le 07112016 n'arrive pas à l'avoir au tel
+https://www.leboncoin.fr/locations/1019022545.htm?ca=22_s - contact lbl le 07112016 n'arrive pas à l'avoir au tel + message
 
 #### Brignais :
 
@@ -27,7 +27,7 @@ https://www.leboncoin.fr/locations/1033339004.htm?ca=22_s - Contact fait par lbc
 https://www.leboncoin.fr/locations/1025287883.htm?ca=22_s  - Visite le 10112016 - 17h30 - 10 Impasse Marion
 
 #### Oullins
-https://www.leboncoin.fr/locations/1044410859.htm?ca=22_s  Chauffage compris 04 72 71 16 34 - Contact par lbc  le 05112016
+https://www.leboncoin.fr/locations/1044410859.htm?ca=22_s  Chauffage compris 04 72 71 16 34 - Contact par lbc  le 05112016 - ne rep pas au tel
 
 #### Pierre Bénite
 
