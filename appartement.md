@@ -1,3 +1,6 @@
+> *Lien de recherche*
+> https://www.leboncoin.fr/locations/offres/rhone_alpes/haute_savoie/?th=1&parrot=0&mrs=200&mre=700
+
 # La Balme-de-Sillingy 74330 - 14 min / 10 km
 ## Chauffage individuel Gaz
 https://www.leboncoin.fr/locations/1087639128.htm?ca=22_s
